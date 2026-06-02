@@ -5,8 +5,8 @@
 ## 推荐入口
 
 - [热吧古风 re8.pics](https://re8.pics/)：古代、无限流、快穿方向的耽美小说分站。
-- [古代耽美小说频道](https://re8.pics/channel/gu-dai)：古风、宫廷、权谋、江湖相关作品集合。
-- [无限流耽美小说频道](https://re8.pics/channel/wu-xian-liu)：副本、悬疑、强强合作方向的作品入口。
+- [古代耽美小说频道](https://re8.pics/channel/gu-dai-dan-mei)：古风、宫廷、权谋、江湖相关作品集合。
+- [无限流耽美小说频道](https://re8.pics/channel/wu-xian-liu-dan-mei)：副本、悬疑、强强合作方向的作品入口。
 
 ## 适合搜索的主题
 
